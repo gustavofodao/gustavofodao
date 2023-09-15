@@ -1,6 +1,6 @@
 ### eae
 é os d vidaa
-é os guri de prudentopolis pocando slk
+é os guri de prudentopolis pocando slk 🥵​
 
 
 <!--
