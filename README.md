@@ -1,4 +1,7 @@
-### Hi there 👋
+### eae
+é os d vidaa
+é os guri de prude pocando slk
+
 
 <!--
 **gustavofodao/gustavofodao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
